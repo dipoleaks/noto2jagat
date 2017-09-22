@@ -1,1 +1,0 @@
-# noto2jagat
